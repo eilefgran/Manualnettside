@@ -1,0 +1,1 @@
+Panoramautsikten - bruker informasjon.
